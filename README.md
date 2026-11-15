@@ -13,7 +13,7 @@ I'm a Full-Stack Digital Marketing enthusiast passionate about bridging marketin
 ### Connect
 - [GitHub](https://github.com/rafiiputra)
 - [Portfolio](https://rafi-fadhila-putra-portfolio.vercel.app/)
-- [Business Inquiries](https://zena.co.id)
-- [New Opportunity](rafifadhilaputra@gmail.com)
+- [Business Inquiries](https://zena.co.id) or (info@zena.co.id)
+- [New Opportunity](https://www.linkedin.com/in/rafifadhilaputra/) or (rafifadhilaputra@gmail.com)
 
 I look forward to staying in touch and exploring opportunities for future collaboration. I believe that by understanding and aligning our respective needs and objectives, we can build a strong foundation for a mutually beneficial partnership. Thank you once again for your time and consideration.
